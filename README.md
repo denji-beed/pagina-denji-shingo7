@@ -1,0 +1,1 @@
+# pagina-denji-shingo7
